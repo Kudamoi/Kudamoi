@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kudamoi
+- 👀 I’m interested in playing gitar and drums
+- 🌱 I’m currently learning Java, PHP, JavaScript
+- 📫 How to reach me https://t.me/@kudamoi, https://vk.com/kudamoi
